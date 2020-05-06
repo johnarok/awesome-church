@@ -88,6 +88,70 @@ We can start by telling stories - aka testimonies Rev 12:11
 
 If we can tell stories, we can create prophetic culture in our neighbourhood and community when people hear what God is doing.
 
+Can be personal storie of transformation or stories of what the church is doing in the community
+
+Speaking the language of the culture
+
+### Online Experiences
+
+Samples, Craig Grochel, Steven Furtick
+
+Life.Church ? what is it //todo
+
+What do yo want your first time visitor to feel
+
+What do you want them to think 
+
+Who is the ideal person on your website
+
+What do they look like
+
+### Navigating the white noice
+
+What can we learn from underground churches? Life is simple, Discipleship is simple, Church is simple
+
+All of the streaming all of the churches are doing right now, will become white noice to users soon.
+
+It will become white noice to the unchurched.
+
+How can we keep who we are and what we are doing simple
+
+"If it is not simple, it is not reproducible" Andy Stanley
+
+Missional vs Attractional Church
+
+Thinking addressing needs in the community
+
+Rick Warren created profiles of people who they are trying to reach when starting Saddleback
+
+You have to figure quick who you are reaching out via the digital ministry (Narrow down)
+
+Curiosity will catch the Unchurched - Remember moses and the burning bush
+
+Rephrase for your audience
+
+Sermon Title variations "Against all Hope" vs "What does it mean to be against all Hope" or "Have your back been ever against a wall"
+
+### Crowdsourcing Ministry
+
+Most times we start a ministry from where we are instead of where people are.
+
+We have "savior" complexes, determining we know what is best
+
+Impactful ministry is when we join God's invitation to start where people are
+
+Firat thing God asked was "Adam where are you?"
+
+Sometimes, we need to ask that simple question "how can we help" instead of curating a solution for a advertised scenario.
+
+Asking the community "What top struggles or challenges you have"
+
+Allowing community to identify their own needs shows respect for their dignity
+
+Turn your social media campaigns to listening campaigns, ask questions.
+
+
+
 
 
 
