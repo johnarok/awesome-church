@@ -150,6 +150,42 @@ Allowing community to identify their own needs shows respect for their dignity
 
 Turn your social media campaigns to listening campaigns, ask questions.
 
+### Social Outreach
+
+When our buildings were shutdown, we doubled our services online.
+
+Pivot and Innovate
+
+We Pivot because things happen that are outside of our control
+
+We innovate because we have a God who is control.
+
+https://planyourvisitchallenge.com/ - A workshop by the author on digital ministry
+
+### The new mega church
+
+When a crisis hits, people who can help will be sought out
+
+A facebook page with 1600 people is the same medium and capacity,
+
+Harvest is plentiful, we have to shift where our people are.
+
+You are already a mega church pastor, so act in that capacity.
+
+### Digital Discipleship
+
+We need to keep our central focus in making disciples
+
+Every week we have mobilized disciple makers to use Zoom to keep going at it
+
+Five elements of discipleship making. hope, head, heart, hands and help
+
+We can pastor through pandemic, because our early church fathers did it.
+
+The great commission has not changed
+
+
+
 
 
 
