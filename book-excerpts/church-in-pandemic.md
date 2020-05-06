@@ -1,8 +1,6 @@
-
-Acts 8:1-5 
-  There is a scattering that is happening right now
-  
 ### Tide has turned, no one is wanting to come to Church
+
+Acts 8:1-5  - There is a scattering that is happening right now
 
 People are thinking about how their next pay check is going to come or their next meal
 
@@ -182,17 +180,4 @@ Five elements of discipleship making. hope, head, heart, hands and help
 
 We can pastor through pandemic, because our early church fathers did it.
 
-The great commission has not changed
-
-
-
-
-
-
-
-
-
-
-
-
-
+The great commission has not changed.
